@@ -4,4 +4,4 @@
 
 🤔 I’m looking for new job. 
 
-📫 My email address: `aW5mMmluZjJAb3V0bG9vay5jb20=`
+📫 My email address: `inf2inf2@outlook.com`
